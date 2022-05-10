@@ -1,5 +1,3 @@
-# czarnycz.github.io
-
-**Bartek Głuszko**
+# Bartek Głuszko
 
 ## Experience
