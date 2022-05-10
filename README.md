@@ -1,3 +1,0 @@
-# Bartek Głuszko
-
-## Experience
